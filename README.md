@@ -1,1 +1,0 @@
-# seongjunKim-mxn.github.io
